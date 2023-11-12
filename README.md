@@ -5,4 +5,4 @@
 ![Screenshot_3](https://github.com/kartickdutta/kartickduttapainting/assets/72213895/88bdf1cf-0a3a-40cc-97a8-d100a19f9f09)
 ![Screenshot_4](https://github.com/kartickdutta/kartickduttapainting/assets/72213895/9fc63240-a98b-4161-b591-d53f8fd12dd9)
 
-
+![Screenshot_5](https://github.com/kartickdutta/kartickduttapainting/assets/72213895/4ff97977-513b-449b-afca-f1f3da147d0e)
